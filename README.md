@@ -14,7 +14,7 @@ I am a **Cryptology & Cybersecurity** student at the **Military University of Te
 
 ### My Passions
 * **Judo:** Former member of the **Provincial National Team**. Years on the mat taught me discipline, strategy, and how to get back up after a fall.
-* **Mountains:** Passionate about hiking. My current dream is a **hitchhiking trip to the Dolomites** 🏔️.
+* **Mountains:** Passionate about hiking. My current dream is a **hitchhiking trip to the Dolomites**.
 * **Travel:** I love the freedom of the road and the challenges of spontaneous adventures.
 
 ---
